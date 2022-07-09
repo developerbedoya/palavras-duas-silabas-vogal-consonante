@@ -1,0 +1,1 @@
+# palavras-duas-silabas-vogal-consonante
